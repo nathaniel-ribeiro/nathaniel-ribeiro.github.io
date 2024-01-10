@@ -1,1 +1,0 @@
-# nathaniel-ribeiro.github.io
